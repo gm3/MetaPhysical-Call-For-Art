@@ -1,3 +1,6 @@
+![](https://i.imgur.com/uX31WRg.jpg)
+
+
 # MetaPhysical Call For Art
 
 ## Summary
@@ -18,7 +21,6 @@ We encourage you to have fun and possibly use the Metafactory assets, and explor
 Here are some examples of the correct size for the render.
 
 
-![](https://i.imgur.com/uX31WRg.jpg)
 
 
 
