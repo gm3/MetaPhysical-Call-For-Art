@@ -18,6 +18,11 @@ Rental info https://lumestudios.com/studios
 
 ## Video Resolution and Submission Details
 The resolution of the video we need is 9600 * 1080p
+15 sec, 30 sec, or 1 min is plenty
+
+## Deadline
+NFY.NYC dates are Tue, Jun 21, 2022 – Thu, Jun 23, 2022 so im looking to have all video ready for the show a week before.
+Please submit ASAP, I am sorry about the short notice. 
 
 The screens in the venue are essentially 5 screens projected across 3 surfaces. Please design your art to look cool and take advantage of all this pixel space! Go for it! 
 
