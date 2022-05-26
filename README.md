@@ -6,7 +6,7 @@
 ###### tags: `metafactory` `m3` 'wearables' 'lume'
 
 ## Summary
-MetaFactory https://www.metafactory.ai/ is putting on an event in New York, as a satellite event during NFT.NYC. We are looking for video motion graphic art that will fill 9600x1080p screens at the MetaPhysical exhibition (Lume Studios). We are gathering footage and renders from the community to compile together for this 12 hour event that would be great to get some of the community members art up on these screens.
+MetaFactory https://www.metafactory.ai/ is putting on an event in New York, as a satellite event during NFT.NYC. We are looking for video motion graphic art that will fill 9600x1080p screens at the MetaPhysical exhibition (Lume Studios). We are gathering footage and renders from the community to compile together for this 12 hour event and it would be great to get some of our community members art up on these screens.
 
 ## What is the event about?
 The event is a mixed reality exhibition themed around the open metaverse, and interoperability. We have rented a studio venue, and built the same venue in the metaverse. This event will be a mixer / meetup for blockchain enthusiasts during the week of NFT.NYC. It is a free event, and open to the public. To see the full event info, please check out this link. LINK
