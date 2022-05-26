@@ -4,7 +4,7 @@
 # MetaPhysical Call For Art
 
 ## Summary
-We are looking for video motion graphic art that will fill the screens at the LUme Studio event hosted by MetaFactory. We are gathering footage and renders from the community to compile together for this 12 hour event that would be great to get some of the community members art up on these screens.
+We are looking for video motion graphic art that will fill the screens at the MetaPhysical exibition with MetaFactory at Lume Studios. We are gathering footage and renders from the community to compile together for this 12 hour event that would be great to get some of the community members art up on these screens.
 
 ## What is the event about?
 The event is a mixed reality exhibition. We have rented a studio venue, and built the same venue in the metaverse. This event will be a mixer / meetup for blockchain enthusiasts during the week of NFT.NYC. It is a free event, and open to the public. To see the full event info, please check out this link. LINK
