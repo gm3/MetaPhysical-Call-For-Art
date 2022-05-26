@@ -24,7 +24,9 @@ The screens in the venue are essentially 5 screens projected across 3 surfaces. 
 ## Themes
 We encourage you to have fun and possibly use the Metafactory assets, and explore themes of interoperability, avatar wearables, platform agnostic design, and the open metaverse. Have fun! Please submit art in mp4 format. Please also message me the title, description, along with your artist name and social media so that I can include in the documentation, to boomboxhead#5796 on discord. 
 
-The focus of this show is "explore themes of interoperability, avatar wearables, platform agnostic design, and the open metaverse" footage received will me reveiwed by the whole DAO at some point for final reveiw, thanks for taking to time to work with MetaFactory!
+The focus of this show is "explore themes of interoperability, avatar wearables, platform agnostic design, and the open metaverse" footage received will me reveiwed by the whole DAO at some point for final reveiw.
+
+I put this call for art out in the hope I can extend my oppertunity to other friends in the space and artists, and I appreciate anyone who help MetaFactory in anyway. 
 
 Thanks so much for rocking out with us! Much love! 
 
